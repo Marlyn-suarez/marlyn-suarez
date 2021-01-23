@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning Python. 
 - 🤔 I’m looking for help with accountability. 
 - 📫 How to reach me: marlyn.suarez@gmail.com
-- 😄 Pronouns: she/they
+- 😄 Pronouns: they/them
 - ⚡ Fun fact: I love to write poetry as well. 
 
 :yellow_heart: Looking forward to connecting with others soon!

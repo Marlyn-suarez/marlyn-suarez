@@ -1,4 +1,4 @@
-### Hi there! I'm an aspiring back-end developer! Thanks for checking out this page! 👋
+### Hi there! I'm an aspiring software developer! Thanks for checking out this page! 👋
 
 
 Here are some ideas to get you started:
